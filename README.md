@@ -35,4 +35,4 @@ Any updates to this policy will be posted here.
 ### Contact
 
 If you have any questions or concerns about your privacy when using **Blinko: Find It. Learn It. Remember It.**, please send a message on:  
-[Discord Link]
+[[Discord Link]](https://discord.gg/ZWFXD2JJrn)
